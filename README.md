@@ -1,4 +1,4 @@
-Not gonna lie... Im i have no clue how i even got here. So to anyone who's reading this just know i'm gonna take over the world but not in a drmatic way. Just simple and quietly. 
+Not gonna lie... Im i have no clue how i even got here. So to anyone who's reading this just know i'm gonna take over the world but not in a drmatic way. Simple and quietly. 
 
 
 
